@@ -13,9 +13,7 @@
 
 - 📫 Reach me via **abhishek18h@gmail.com**
 
-- 📝 I regularly write articles on my Medium [ah3.medium.com](ah3.medium.com)
-
-- 📄 Know about my experiences [ah3.read.cv](ah3.read.cv)
+- 📝 I write [The Classic 10](classic10.substack.com)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
